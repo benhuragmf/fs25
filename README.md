@@ -1,5 +1,5 @@
 Algodão https://www.twitch.tv/videos/2618529300?t=1h19m7s e https://www.twitch.tv/videos/2627889831?t=5h2m7s 
-Vargem  https://www.twitch.tv/videos/2617704659?t=1h9m0s 
+Vargem  https://www.twitch.tv/videos/2617704659?t=1h9m0s <br>
 Girassol  https://www.twitch.tv/videos/2619259576?t=4h54m18s 
 Cherivia  https://www.twitch.tv/videos/2617704659?t=1h15m39s 
 Cenoura https://www.twitch.tv/videos/2618529300?t=0h48m12s 
